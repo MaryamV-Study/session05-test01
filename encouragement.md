@@ -10,7 +10,7 @@ You are **cool!**
 
 You can **do it!**
 
-You wont be **the best.**
+You won't be **the best.**
 
 Sometimes you won't even be **good.**
 
@@ -67,6 +67,10 @@ And if you **always** come back!
 **Even when** you wonder off.
 
 You will make a **difference!**
+
+
+
+**Keep it up** and don't forget:
 
 
 
